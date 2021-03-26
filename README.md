@@ -1,2 +1,0 @@
-# Bible-Project
- 
